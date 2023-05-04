@@ -1,6 +1,14 @@
 ## This is the Victorius Victor Bible
+# Victorius Baratoulous Meshkaflan Aronata Ho
 
 ## Victorius Victor And His FOUR WISE DISCIPLES
+## JHAMES LAIDLAW THE FIRST OF HIS NAME
+## PASTOR NATE BURNS 
+## POPE EWAN 
+## PRIEST BRION
+
+
+
 ###     Victor be your name
 ###    Your disicples come
 ###    Your commands we shall obey
